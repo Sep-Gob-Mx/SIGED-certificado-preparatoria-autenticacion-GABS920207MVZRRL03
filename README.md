@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GABS920207MVZRRL03
+GABS920207MVZRRL03
